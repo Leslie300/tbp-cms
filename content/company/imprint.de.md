@@ -5,7 +5,7 @@ slug: impressum
 
 Betreiberin der Website:
 
-THE BETTER PLAY test
+THE BETTER PLAY
 Katja Navarra
 Husemannstrasse 10
 10435 Berlin
