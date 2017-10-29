@@ -5,11 +5,15 @@ slug: impressum
 
 Betreiberin der Website:
 
-THE BETTER PLAY
-Katja Navarra
-Husemannstrasse 10
-10435 Berlin
-Kleinunternehmer i.S.d. § 19 UStG
+THE BETTER PLAY 
+
+Katja Navarra 
+
+Husemannstrasse 10 
+
+10435 Berlin 
+
+Kleinunternehmer i.S.d. § 19 UStG 
 
 Kontakt: info@thebetterplay.com. Sie erhalten von uns eine Rückmeldung binnen 60 Min.
 
